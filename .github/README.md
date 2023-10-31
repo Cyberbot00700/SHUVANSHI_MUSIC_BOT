@@ -1,15 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ 」──
+    ──「 ༒︎🍃𝕊𝐡𝐢𝐯𝐚𝐧𝐬𝐡𝐢♪𝐌𝐮𝐬𝐢𝐜🥀 」──
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
+  <img src="https://telegra.ph/file/538dfef99c9212e6c934a.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ](https://t.me/FallenMusicBot)**_
-━━━━━━━━━━━━━━━━━━━━
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [༒︎🍃𝕊𝐡𝐢𝐯𝐚𝐧𝐬𝐡𝐢♪𝐌𝐮𝐬𝐢𝐜🥀](https://t.me/SHIVANSHI_MUSIC_BOT)
 
 <p align="center">
 <a href="https://github.com/AnonymousX1025/FallenMusic/stargazers"><img src="https://img.shields.io/github/stars/AnonymousX1025/FallenMusic?color=black&logo=github&logoColor=black&style=for-the-badge" alt="Stars" /></a>
@@ -23,7 +22,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ 
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/8a38f66826c2ea5e97724.jpg">
+  <img src="">
 </p>
 
 <p align="center">
