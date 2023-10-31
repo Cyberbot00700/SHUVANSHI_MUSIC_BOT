@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/538dfef99c9212e6c934a.jpg">
+  <img src="https://telegra.ph/file/ca9d787793d48faa0ac2e.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [༒︎🍃𝕊𝐡𝐢𝐯𝐚𝐧𝐬𝐡𝐢♪𝐌𝐮𝐬𝐢𝐜🥀](https://t.me/SHIVANSHI_MUSIC_BOT)
